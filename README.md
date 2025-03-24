@@ -1,3 +1,3 @@
-# Karina-s-happy-place
+# My happy place
 This is my personal canvas to capture ideas, projects and other interesting things :)
 
